@@ -1,5 +1,5 @@
 # 💫 About Me:
-Saya seorang pembuatan website, server samp, dan bot
+Saya seorang pembuatan website, developer server samp, developer bot discord, scripter Roblox(MartinSC)
 
 
 ## 🌐 Socials:
